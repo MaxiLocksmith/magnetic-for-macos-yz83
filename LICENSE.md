@@ -1,4 +1,4 @@
-
+Get the ultimate Magnetic for macOS extension with best Extension for Magnetic for macOS - network-speed and hotkey-customization. Featuring network-speed and
 
 
 
